@@ -1,3 +1,3 @@
 We are bored in the city.
 
-A hacienda must be built.
+There is no hacienda anymore. A hacienda must be built.
