@@ -1,3 +1,3 @@
-We are bored in the city.
+We are bored in the city, there is no longer any Temple of the Sun.
 
-There is no hacienda anymore. A hacienda must be built.
+A hacienda must be built.
